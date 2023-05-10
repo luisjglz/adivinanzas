@@ -17,3 +17,5 @@ Soy un anciano arrugadito que si me hechan al agua me pongo gordito
 Es cómo una paloma blanca y negra, pero vuela sin alas y habla sin lengua.
 
 Siempre mirando al sol y no soy un caracol. Giro y giro sin fin y no soy un bailarín.
+
+Desaparezco en cuanto me nombras
