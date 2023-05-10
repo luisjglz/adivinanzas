@@ -10,6 +10,8 @@ En el mar no me mojo, en las brasas no me quemo, en el aire no me caigo y me tie
 
 Es cómo una paloma blanca y negra, pero vuela sin alas y habla sin lengua.
 
+Es cómo una paloma blanca y negra, pero vuela sin alas y habla sin lengua.
+
 Soy un anciano arrugadito que si me hechan al agua me pongo gordito
 
 Es cómo una paloma blanca y negra, pero vuela sin alas y habla sin lengua.
